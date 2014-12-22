@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-¶ Here begynneth the Egloges of Alexāder Barclay prest wher of the fyrst thre conteyneth the mysery
+
 #####Body#####
 THe famous Poetis with the Musys nyneWith wyt inspyreth / fre••e pregnant & dyuyneSay boldely indyte¶ The prologe of the fyrst egloge▪•• o symple shepherdys / met on a certayne dayThe one wele agyd / 
       * ¶ The prologe of the fyrst egloge▪
